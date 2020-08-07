@@ -1,3 +1,0 @@
-kokikuraoto
-football
-kyoto
