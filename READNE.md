@@ -1,0 +1,3 @@
+kokikuraoto
+football
+kyoto
